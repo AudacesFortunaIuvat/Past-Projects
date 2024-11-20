@@ -13,8 +13,6 @@ email me at
 
 georgeowenbenner@gmail.com
 
-You're awesome! I can't wait to talk! 
-
 Thanks so much!
 
 Owen
